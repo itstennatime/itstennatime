@@ -10,7 +10,7 @@
 
 ୨୧⸝⸝﹕PLSPPLSPLSPLSPLSPLPLS INTERACTT IF U WANTTT﹐⊂✦⊃ ‹𝟹
 
-![Alt Text](https://media.tenor.com/SETDXWcfo-QAAAAj/deltarune-tenna.gif)
+![Alt Text](https://media.tenor.com/SETDXWcfo-QAAAAj/deltarune-tenna.gif) ![Alt Text](https://preview.redd.it/my-tenna-gif-collection-v0-6taxtxi28baf1.gif?width=256&auto=webp&s=d1cba4b4a9843ccd285dc58b71d93e82b4b39d37)
 
 ![Alt Text](https://i.pinimg.com/736x/08/ff/8b/08ff8b3221cce7ffefbee8565a5dc052.jpg)
 
