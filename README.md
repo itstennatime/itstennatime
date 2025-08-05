@@ -4,7 +4,7 @@
 
 ![Alt Text](https://i.pinimg.com/736x/99/9e/5c/999e5c592fd287965dbe6b18f172b8c5.jpg)
 
-![Alt Text](https://i.pinimg.com/originals/06/63/15/0663156f6934dbc23801b119ebf4c4c0.gif)
+![Alt Text](https://i.pinimg.com/originals/66/aa/7c/66aa7ca77fc873d483c11d0f30b6ff41.gif)
 
 (՞ ܸ. .ܸ՞)C+h Freely! I LOOOVE making new friends!! SPAMTON PLSPLSPLPLSS INT OR DELTARUNE FANS(ˆ⩊ˆԅ) ![Alt Text](https://static.wikia.nocookie.net/villains/images/e/e9/Tenna_kick.gif/revision/latest/scale-to-width-down/250?cb=20250606204020)
 
