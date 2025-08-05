@@ -28,5 +28,5 @@ As you realize
 
 *You’re needed no more*"
 
-![Alt Text](https://i.pinimg.com/736x/37/38/0d/37380dce49b66489157f6a853fee9951.jpg)
+![Alt Text](https://i.pinimg.com/736x/08/ff/8b/08ff8b3221cce7ffefbee8565a5dc052.jpg)
 
