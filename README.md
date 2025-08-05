@@ -24,7 +24,7 @@ WHAT THE..?!  HOW THE WHAT THE MAMA WHAT THE HECK THE MAMMA WOH MAMMA WOAH MA WO
 
  HOW THE WHAT THE MAMA WHAT THE HECK THE WHAT'S MA WHAT'S WHAT'S MAMMA HECK MA HEY MAMA MIA WOH WOH WOAH HECK WHAT'S HECK WHAT'S MAMMA MA WHAT THE WHAT'S WHAT THE WOAH WOH MAMA MIA MAMMA MAMA MIA WHAT'S WHAT'S MA HEY MA HECK WHAT'S WHAT THE MAMMA WOAH MAMMA HEY HEY 
 
-![Alt Text](https://media.tenor.com/jtV8a9QBwiIAAAAM/tenna-deltarune.gif)
+<img src="https://media.tenor.com/jtV8a9QBwiIAAAAM/tenna-deltarune.gif" width="150">
 
 ...
 
@@ -38,5 +38,5 @@ Some Kind Of RAT!? Some kind of CREATURE!?
 
 STAY AWAY FROM HER, you FIEND!!!
 
-![Alt Text](https://media.tenor.com/pDlPbgvTF8cAAAAM/deltarune-delta-rune.gif)
+<img src="https://media.tenor.com/pDlPbgvTF8cAAAAM/deltarune-delta-rune.gif" width="150">
 
