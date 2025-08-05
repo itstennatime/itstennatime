@@ -4,29 +4,9 @@
 
 ![Alt Text](https://i.pinimg.com/736x/26/ec/9b/26ec9b809148edc1cf88b5a169c81277.jpg)
 
-"*Crazy how the time flies by*
+(՞ ܸ. .ܸ՞)C+h Freely! I LOOOVE making new friends!! SPAMTON PLSPLSPLPLSS INT OR DELTARUNE FANS(ˆ⩊ˆԅ)
 
-*When you’re having all the best*
-
-Scenes of your life
-
-Colour bled from black and white
-
-As the ticking of the clock
-
-Changes into chime
-
-Notice how the light goes dark
-
-When you’re pulling at the cables
-
-Chained to your heart
-
-Static gives into the roar
-
-As you realize
-
-*You’re needed no more*"
+ ⋆｡°✩Attention straved person, i **LOVE** attention!,,꒰ ⸝⸝´ ˘ `⸝⸝ ꒱
 
 ![Alt Text](https://i.pinimg.com/736x/08/ff/8b/08ff8b3221cce7ffefbee8565a5dc052.jpg)
 
