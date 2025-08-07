@@ -4,13 +4,14 @@
 
 <img src="https://media.tenor.com/PhI6HKTY54gAAAAM/sad-tenna.gif" width="150">
 
-but before the fun..
+*but before the fun..*
 
-# PLEASE do not interact if you:
+## ***PLEASE*** *do not interact if you:*
 -sexualize tenna or spamton etc, please just..dont. if u love thse jokes etc make it in private, not in front of people y dont know! idc i am being sensitive but youre uining my favourite and comfort character at this point youre not funny or cool. Just stop. please. i love jokes but,,these are NOT funny, maybe to me but its sitll weird '^) please try to respect also others and think how they would feel before u interact., just..pleast think.
 
+<img src="https://i.pinimg.com/736x/ca/cd/39/cacd393634df3475153231c17532ff5d.jpg" width="350">
 
-<img src="https://i.pinimg.com/736x/ca/cd/39/cacd393634df3475153231c17532ff5d.jpg" width="600">
+<img src="https://i.pinimg.com/736x/36/9d/e6/369de64aa7a95cc53ac7eb49977b459c.jpg" width="150">
 
  <img src="https://i.pinimg.com/originals/66/aa/7c/66aa7ca77fc873d483c11d0f30b6ff41.gif" width="300"><img src="https://static.wikia.nocookie.net/villains/images/e/e9/Tenna_kick.gif/revision/latest/scale-to-width-down/250?cb=20250606204020" width="150">
 
