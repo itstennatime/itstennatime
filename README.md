@@ -11,7 +11,7 @@
 
 <img src="https://i.pinimg.com/736x/ca/cd/39/cacd393634df3475153231c17532ff5d.jpg" width="350">
 
-<img src="https://i.pinimg.com/736x/36/9d/e6/369de64aa7a95cc53ac7eb49977b459c.jpg" width="150">
+<img src="https://i.pinimg.com/736x/36/9d/e6/369de64aa7a95cc53ac7eb49977b459c.jpg" width="300">
 
  <img src="https://i.pinimg.com/originals/66/aa/7c/66aa7ca77fc873d483c11d0f30b6ff41.gif" width="300"><img src="https://static.wikia.nocookie.net/villains/images/e/e9/Tenna_kick.gif/revision/latest/scale-to-width-down/250?cb=20250606204020" width="150">
 
